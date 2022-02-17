@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @EggD7
+- 👀 I’m interested in tacos
+- 🌱 I’m currently learning spanish
